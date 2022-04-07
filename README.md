@@ -1,0 +1,2 @@
+- Hi, I’m @Vlada-C (VladaC on OpenStreetMap)
+- You can reach me at vlada-c () seznam.cz
